@@ -1,2 +1,5 @@
 # adidotzip.github.io
-Prob use framer for ts, I don’t wanna code 🤷
+Drift.rip redrict
+
+Thanks Green Vjgr for the domain <3
+(https://vjgr.top/)
